@@ -1,0 +1,2 @@
+# Banquet-Halls-In-Los-Angeles
+Many people choose to stage elaborate parties for special occasions in banquet halls. Doing so lends an air of glamor, luxury, and opulence. When you consider the occasions where such a hall would be appropriate - wedding banquets, receptions, anniversary parties, et cetera, then you can see where such an atmosphere would come in handy.  Click Here: http://www.metropolbanquet.com
